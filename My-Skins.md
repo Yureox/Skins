@@ -6,7 +6,7 @@ Gemuischt aus dem besten shit.
 ![](https://i.imgur.com/ouXrF8I.png)
 
 # [-+SaberxSeolu](https://doc-10-80-docs.googleusercontent.com/docs/securesc/2r31g6ifu62pfsua55qcdgutt8f75ec3/dpfp9vcv220a50cch244hmcvaben254g/1582203600000/03788890710578331205/03788890710578331205/1XRfwx70QFyD7MuxCFjul3QaBHDxUzJgW?e=download&authuser=2&nonce=qq8ljg5ojm3hm&user=03788890710578331205&hash=20tnq5p8m2bvti6er00r6elmmdr914rd)
-![]([https://i.imgur.com/dFMHs7c.png)
+![](https://i.imgur.com/dFMHs7c.png)
 
 # [Asuka Flying Tuna Remix](https://doc-0k-0g-docs.googleusercontent.com/docs/securesc/c8veinghqjte18a9b5onvgvtnd23kgec/3poe8q42uhhb9dl9ncoukp03g74ml0f5/1582160400000/05861055017923551186/05861055017923551186/1BWNAcH8pgnyasCgCmpG7B2enwoBdQxW2?e=download&authuser=1&nonce=3qeg2vvktiep8&user=05861055017923551186&hash=r2t8hn40f5mrncdqlpd8d7khbnuep4n5)
 ![](https://i.imgur.com/oXZ5Sm3.png)
