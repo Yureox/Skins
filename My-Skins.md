@@ -21,7 +21,7 @@ Gemuischt aus dem besten shit.
 ![](https://i.imgur.com/1wRKMMD.png)
 
 # [- Yureox first mix -](https://doc-08-80-docs.googleusercontent.com/docs/securesc/2r31g6ifu62pfsua55qcdgutt8f75ec3/u5bg87ecrkmealsj55i5m1ns4i03vst6/1582204500000/03788890710578331205/03788890710578331205/1gKRLGsK8VjbgP1vrj1Prj5vh6dhoUt9s?e=download&authuser=2=)
-![]([https://i.imgur.com/zdW9l2t.png)
+![](https://i.imgur.com/zdW9l2t.png)
 
 # [- #Satsuriku no Tenshi mix](https://doc-0c-80-docs.googleusercontent.com/docs/securesc/2r31g6ifu62pfsua55qcdgutt8f75ec3/qv9htlp7856u2etvja366lrauccgsuov/1582204500000/03788890710578331205/03788890710578331205/1d-Ks6aiNItS7VDnJkwAbi97d776a30uT?e=download&authuser=2)
 ![](https://i.imgur.com/JHy9Wid.png)
