@@ -1,5 +1,6 @@
 # Meine osu! Skin mix Sammlung!
-Gemuischt aus dem besten shit.
+Skins die ich nutze und hier nicht aufgelistet sind, sind noch nicht fertig oder werden aus gründen nicht veröffentlicht.
+Gemischt aus dem besten shit.
 
 
 # [Komori - Hacka Doll random mix](https://doc-08-4o-docs.googleusercontent.com/docs/securesc/vkigkfi8j2getlh0j2909nf7ce93jf25/fihsfkmk54trs3qqe51mnsvacdq3ptq1/1582203600000/03788890710578331205/15219195400400451908/18emNtvY8RFNC1xa2rM0vpdpNrYSumFx_?e=download&authuser=0&nonce=llc72qtoep3c0&user=15219195400400451908&hash=5avpppnr45f9fbu1utkhi4n18egm89dh)
